@@ -1,3 +1,3 @@
 # Personal_website
 
-# Quick learner, energy, teacher
+Quick learner, Positive energy, Hardworker
